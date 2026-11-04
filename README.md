@@ -86,4 +86,13 @@ don`t mind the fact that most of these are three days grace songs ,, they've bee
 
 
 
-add images
+he looks so , , hurt
+![alt text](https://github.com/tripminecrystal/tripminecrystal/blob/3db3fe229cef812b063d463d94f3a896a417af01/Screenshot_20261104_005159_Chrome.jpg)
+
+
+
+wow
+![alt text](https://github.com/tripminecrystal/tripminecrystal/blob/3db3fe229cef812b063d463d94f3a896a417af01/Subspace%20%F0%9F%A5%B9.jpeg)
+
+
+can you tell i love subspaces glass bubble sprites
