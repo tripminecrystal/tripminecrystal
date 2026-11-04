@@ -1,3 +1,6 @@
+![alt text](https://github.com/tripminecrystal/tripminecrystal/blob/17b98036f1070ac81c869c68f39bd542f7bf1982/Screenshot_20261104_004159_Chrome.jpg)
+
+
 + lyrics of the month --
 +                     |
 +                     v
